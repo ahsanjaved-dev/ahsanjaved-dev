@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ahsanjaved-dev aka AJ Developer!
+- 👋 Hi, I’m Ahsan Javed!
 - 👀 I’m interested in learning new technologies and expand my skillset.
 - 💞️ I’m looking to collaborate on tiny projects that can help me grow and learn from others.
 - 📫  Feel free to reach out to me via email at ahsanjavedyousafzai555@gmail.com
